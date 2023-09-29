@@ -12,8 +12,4 @@ rebeca.fiati.sousa@escola.pr.gov.br
 
 @rebecafiatisousa16
 
-
-
-
-
-
+![](https://media.tenor.com/jve_fkSYDscAAAAi/anime-nezuko.gif)
